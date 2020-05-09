@@ -1,0 +1,1 @@
+Hi, Richa is a sweet person but she has got a fucking scary and intelligent instructor who is her sister as wellgit
